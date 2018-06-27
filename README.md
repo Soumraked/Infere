@@ -1,1 +1,1 @@
-# Infere
+# Infe
